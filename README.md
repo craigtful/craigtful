@@ -1,2 +1,2 @@
 ㅤㅤㅤ ㅤ ***Be grateful*** ㅤ ❞
-ㅤㅤㅤ❝ ㅤ ***and rejoice+*** 
+ㅤㅤㅤ❝ ㅤ ***and rejoice!*** 
