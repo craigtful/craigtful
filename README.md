@@ -1,4 +1,4 @@
 ㅤㅤㅤ ㅤ ***Be grateful*** ㅤ ❞
 ㅤㅤㅤ❝ ㅤ ***and rejoice!*** 
-![image alt](https://github.com/craigtful/craigtful/blob/f2f01da94eeae21de25bd7762a169886f9ceeeda/Untitled385_20261031204421.png)[old .cc](https://prns.cc/nksvu)
+![image alt](https://github.com/craigtful/craigtful/blob/2963a916bd71da6de734c277e9297a4c6167ce40/Untitled410_20261119222750.png)[old .cc](https://prns.cc/nksvu)
    ♪ ㅤall widgets made by me!
